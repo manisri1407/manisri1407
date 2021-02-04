@@ -8,4 +8,3 @@ Here are some ideas to get you started:
 - 💬 Ask me about sports.
 - 📫 How to reach me: manisrinallamilli@gmail.com.
 - ⚡ Fun fact: Lazy.
-
