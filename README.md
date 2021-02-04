@@ -7,6 +7,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with studies.
 - 💬 Ask me about sports.
 - 📫 How to reach me: manisrinallamilli@gmail.com.
-- 😄 Pronouns: He,She.
 - ⚡ Fun fact: Lazy.
 
